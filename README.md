@@ -1,6 +1,6 @@
-An aspiring developer who wants to use technology to make the world a better place.
+✨ An aspiring developer who wants to use technology to make the world a better place.
 
-Feel free to reach me at joyliuuu@gmail.com!
+✨ Feel free to reach me at joyliuuu@gmail.com!
 
 
 <!---
