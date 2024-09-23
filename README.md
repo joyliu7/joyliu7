@@ -1,5 +1,5 @@
-✨ An aspiring developer who wants to use technology to make the world a better place.
-
+✨ Dream: Make the world a better place!
+✨ This repository is part of the story of my life👍
 ✨ Feel free to reach me at joyliuuu@gmail.com!
 
 
